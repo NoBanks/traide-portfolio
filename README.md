@@ -20,15 +20,15 @@ Three short deck videos with original NoBanks music.
 
 **TRAIDE AI DeFi ecosystem:**
 
-<!-- DROP-VIDEO-1 -->
+https://github.com/user-attachments/assets/cccdee63-2130-4ba6-a047-e023fedf5269
 
 **The cybernetic engine:**
 
-<!-- DROP-VIDEO-2 -->
+https://github.com/user-attachments/assets/399be5e2-f235-4148-a32c-a03c91e3c241
 
 **Multi-chain ecosystem:**
 
-<!-- DROP-VIDEO-3 -->
+https://github.com/user-attachments/assets/f74392bd-6e89-4d0e-ba4e-954f56b3c512
 
 ---
 
